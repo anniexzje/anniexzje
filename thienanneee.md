@@ -1,0 +1,6 @@
+-Hi,Im @anniezxje
+-Currently,Im learning at HCMUS-FETEL.
+-Im going to be embedded system engineer.
+-Like to code and yapp.
+-Kinda bat at electronics(ngl).
+-Discord:anniejustwokeup#4579.
